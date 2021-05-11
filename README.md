@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Kenn03
-- 👀 I’m interested in photography
-- 🌱 I’m currently learning videography and video editing
-- 💞️ I’m looking forward to collaborating with a major brand
+- 👀 I’m interested in photography and programming
+- 🌱 I’m currently learning videography, video editing and creating websites
+- 💞️ I’m looking forward to collaborating with a major brand and also major web design companies
 - 📫 How to reach me via email;kennwayne09@gmail.com
                             IG ; k3.0w__
                         TWITTER; @sugark_ush
