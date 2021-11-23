@@ -2,8 +2,8 @@
 - 👀 I’m interested in photography and programming.
 - 🌱 I’m currently learning videography, video editing and creating websites.
 - 💞️ I’m looking forward to collaborating with a major brand and also major web design companies.
-- 📫 I spend my free time creating opem source projects.
--  How to reach me via email;kennwayne09@gmail.com,
+- 📫 I spend my free time creating open source projects.
+-  You can reach me via email;kennwayne09@gmail.com,
                             IG ; k3.0w__,
                         TWITTER; @sugark_ush.
 _With the growing trend in tech, I find it necessary for each and everyone of us to be highly active in this new revolution coz it is evident that the world is changing.
